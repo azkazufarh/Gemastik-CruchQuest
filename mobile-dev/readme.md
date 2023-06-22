@@ -1,0 +1,1 @@
+Khususon buat satria
